@@ -4,7 +4,7 @@
 > 
 > **Architecture:** Neurodivergent / AuDHD
 > 
-> **Primary language:** Englis
+> **Primary language:** English
 > 
 > **First language:** Polish
 > 
